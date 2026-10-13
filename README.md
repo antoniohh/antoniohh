@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @ahorrillo
+- 👋 Hi, I’m @antoniohh
 - 👀 I’m a Web Developer
-- 🌱 I'm currently working of webmaster
+- 🌱 I'm currently working of webmaster responsible for analytics, technical SEO, generative AI, and programming.
 - 💞️ I’m looking to collaborate on Google 😄😄
-- 📫 How to reach me tuanhorrillo@gmail.com
+- 📫 How to reach me antoniohh76@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: ✨ special ✨
