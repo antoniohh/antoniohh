@@ -2,6 +2,6 @@
 - 👀 I’m a Web Developer
 - 🌱 I'm currently working of webmaster responsible for analytics, technical SEO, generative AI, and programming.
 - 💞️ I’m looking to collaborate on Google 😄😄
-- 📫 How to reach me antoniohh76@gmail.com
+- 📫 How to reach me info@antoniohorrillo.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: ✨ special ✨
